@@ -1,0 +1,1 @@
+# Mukemmel_Sayi_Kontrolu
